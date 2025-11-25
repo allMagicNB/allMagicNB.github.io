@@ -1,0 +1,1 @@
+# allMagicNB.github.io
